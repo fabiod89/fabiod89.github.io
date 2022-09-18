@@ -1,4 +1,4 @@
-https://fabiod89.github.io/Portfolio/
+https://fabiod89.github.io/
 
 Thanks for downloading this template!
 
